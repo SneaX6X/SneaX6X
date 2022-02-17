@@ -1,0 +1,5 @@
+-👋 Salut je suis Sneax
+- 👀 Je suis passioner de l'aviation
+- 🌱 je joue a FiveM
+- 💞️ I’m looking to collaborate on krafy Dev
+- 📫 Vien discord La Souris#8616
